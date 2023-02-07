@@ -11,8 +11,8 @@ All variants included in the google drive link above.
 # [- dddddv2 -](https://mega.nz/file/JGgQwTqB#KPl0hAYEWxrTc0ZayUpjx9OCG3QRn6z3OknbOGBnHqM)
 ![](https://camo.githubusercontent.com/a5fb97edd4ab9f0c0a8f28141cbfe51f9303eb4e0754c3db2e650d3544fc9020/68747470733a2f2f6f73752e7070792e73682f73732f3131383630393836)
 
-# [Rafis HDDT](https://drive.google.com/file/d/1qv4THw9FR-39uIOLwaNJzWGwgCVxnFAs)
-![](https://imgur.com/5cblO0u)
+# [Rafis 2018 HDDT](https://drive.google.com/file/d/1qv4THw9FR-39uIOLwaNJzWGwgCVxnFAs)
+![](https://i.imgur.com/5cblO0u.jpg)
 
 # [Ryanstolefromkevin](https://mega.nz/file/0Pxx2JZQ#HKrPw2FBQQeM3OIGxhKGeToOFxFMLlYFF8O6QGTHPmk)
 ![](https://i.imgur.com/HFnVQJx.png)
