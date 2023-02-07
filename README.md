@@ -1,5 +1,6 @@
 # eyebits-osu-skins
 eyebits's osu! skins.
+probably wont have all the skins I use. reason: laziness
 
 # [Mathi 2017-08-20](https://drive.google.com/file/d/1dlW-QLgx2qxvzdzXziVxp0lho2cBcaEd)
 ![](https://i.imgur.com/z3j1y51.jpg)
